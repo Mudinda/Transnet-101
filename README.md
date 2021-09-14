@@ -1,0 +1,2 @@
+# Transnet-101
+Transnet Academy has embarked on the development and execution of the Transnet Value Chain Training Programme (Transnet 101) to all the employees across the organization. The programme aims to ensure one understanding of our organization, why it exists, how it works and most importantly how we work together to achieve integration that will improve the overall customer satisfaction.  
